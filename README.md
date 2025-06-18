@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Canva, UI/UX Design**
 
-- 📫 Reach me at: **pradeepranaji.12@gmail.com**
+- 📫 Reach me at: **work.pradeeprana@gmail.com**
 
 - ⚡ Fun fact: **I make UI look easy 😅😎😝**
 
